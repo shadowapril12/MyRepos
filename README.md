@@ -1,2 +1,0 @@
-# MyRepos
-Curs
